@@ -1,7 +1,4 @@
 - 👋 Hi, I’m @xakervrekax
-- 👀 I’m interested in nothing
-- 🌱 I’m currently learning myself
-- 💞️ I’m looking to collaborate with yeat
 - 😄 Pronouns: bat/man
 - ⚡ Fun fact: ...
 
